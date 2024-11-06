@@ -1,2 +1,2 @@
 # Nolan
-Nolan is a father who abandoned his daughter for almost a 17 years 
+Nolan is a father who abandoned his daughter for almost 17 years 
